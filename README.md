@@ -1,3 +1,3 @@
 ISP-22
-Chebotarev M.U
+Chebotarev M.Y
 Variant 5 
